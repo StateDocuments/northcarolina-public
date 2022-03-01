@@ -1,4 +1,5 @@
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/NorthCarolina-public/blob/main/boabuilding.jpg)
+![AutomatedStoryAuthorV11](https://github.com/StateDocuments/NorthCarolina-public/blob/main/snapshot.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/NorthCarolina-public/blob/main/snapshot1.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/NorthCarolina-public/blob/main/snapshot3.jpg)
 ![AutomatedStoryAuthorV11](https://github.com/StateDocuments/NorthCarolina-public/blob/main/snapshot4.jpg)
